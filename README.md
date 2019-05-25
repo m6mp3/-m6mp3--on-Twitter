@@ -1,4 +1,4 @@
--m6mp3--on-Twitter
+-m6mp3--on-snapchat
 ==================
 
-https://twitter.com/m6mp3
+https://snapchat.com/add/n4z
